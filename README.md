@@ -1,0 +1,2 @@
+# AMORICHIKA.github.io
+Web
